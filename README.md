@@ -41,7 +41,7 @@ If approved, the loan amount is disbursed quickly to your registered business ba
 - **GST-Linked Financing:** Leverage your GST invoices for better loan offers.
 - **Transparent & Flexible:** No hidden charges, with customizable loan amounts.
 
-For more details, visit [our blog](https://finagg.in/blogs/index.php/2025/02/05/business-loan/) and explore how FinAGG can help grow your business.
+For more details, visit [Easy business loan for samll busiensses](https://finagg.in/blogs/index.php/2025/02/05/business-loan/) and explore how FinAGG can help grow your business.
 
 ---
 
